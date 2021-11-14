@@ -113,3 +113,131 @@ M- Tout le monde n'as pas tes capacités.
 K- J'ai ça dans le foi.
 
 M- Je comprends bien.
+
+
+## Scene 2
+
+
+M- Alors, tu es arrivé le 4 mars 2018 au Petit-Château c'est ça?
+
+K- Oui.
+
+M- Comment?
+
+K- ?
+
+M- Tu n'y es pas entré comma ça. Voyant la lumière, en passant.
+
+K- Non.
+
+M- ...
+
+K- ...
+
+M- Tu est arrivés en avion. C'est ça?
+
+K- Non. En bus.
+
+M- D'accord. Et le bus vous a déposé au Petit-Château?
+
+K- Non. La police.
+
+M- Bein oui. Le bus a eu un contrôle.
+
+K- Oui. Ensuite, ils nous ont envoyé dans un hôtel. Et plus tard, au Petit-Château.
+
+M- Et, ensuite?
+
+K- J'ai tout de suite trouvé un travail dans l'agriculture biologique, chez Mme Taliski. Tu vois? C'est ça que je voudrais écrire. Que c'est po-ssible!
+
+M- Attends, attends. Comment tu as fait. Ca qui intéresse.
+
+K- ?
+
+M- Il n'y pas de fermes bio près du canal à côté du Petit-Château. Les réfugiés ne se font n'ont pas d'interview d'embauche avec Mme Tsasiki...
+
+K- Mme Taliski.
+
+M- (moqueur) Peu importe. Tu n'as pas été interviewé depuis la cour du Petit-Château. Toi et Mme Taliski de part et d'autre du grillage.
+
+K- Non.
+
+M- Ce qui va intéresser ton lecteur lambda c'est comment tu as fait? Concrètement.
+
+
+## Scene 3
+
+
+K- Je n'ai toujours voulu que du blanc.
+
+M- Hum. (dubitatif)
+
+K- Je sais... Il faudra l'écrire ça aussi.
+
+M- Oui.
+
+K- Que du blanc. Même en Syrie. Je ne prenais que du blanc, et rien d'autre. Pas ça. (doigt sur la dent)
+
+M- Oui, d'accord. Mais, il faudra bien expliquer pourquoi. C'est pas l'idée qu'on se fait d'un réfugié.
+
+K- ...
+
+M- Tu as décidé ça quand?
+
+K- ...J'ai ça dans le foi.
+
+M- Ca aussi?
+
+K- C'est dans la famille, tu comprends.
+
+M- Je comprends.
+
+K- Mon granK-père déjà n'a jamais accepté que du blanc. En Syrie. Tout le monde fait un peu de noir. Mais pas nous.
+
+M- J'imagine.
+
+K- ...
+
+M- Depuis toujours alors?
+
+K- Oui.
+
+M- Mais quand exactement?
+
+K- ?
+
+M- (se ravise) Comment tu as fait?
+
+K- Tout le monde me proposait du noir.
+
+M- Ah!
+
+K- Mais, je disais non.
+
+M- C'est ça, toi tu veux du blanc.
+
+K- Avant de quitter la Syrie, je me suis renseigné. Et, en Belgique c'est très important que tu ne fasses que du blanc. Sinon, on ne te respecte pas.
+
+M- ...
+
+K- De toute façon, moi, en Syrie aussi on me proposait du noir.
+
+M- Et tu disais non.
+
+K- Voilà. Que du blanc. Je tiens ça de mon père, tu sais?
+
+M- Je sais.
+
+K- En plus, quand tu fais du blanc tu peux en parler.
+
+M- C'est vrai.
+
+K- Quand tu fais du blanc, les gens le savent. Et ils te respectent pour ça.
+
+M- Mouais...
+
+K- En plus tu peux payer des taxes.
+
+M- ...
+
+K- J'ai toujours voulu payer des taxes. Pour moi, c'est ça qu'il faut dire à Abdel: tu dois vouloir payer des taxes.
